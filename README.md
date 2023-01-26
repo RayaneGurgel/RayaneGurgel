@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RayaneGurgel, 27yo, from Brazil (PT-BR/ENG)
+- 👋 Hi, I’m @RayaneGurgel, 29yo, from Brazil (PT-BR/ENG)
 - 💞️ I’m a Biologist and biology/science teacher
 - 🌱 I’m currently learning HTML and CSS 
 - 📫 How to reach me: rayanelmgurgel@gmail.com
